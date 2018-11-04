@@ -1,2 +1,3 @@
 # fan
-solfware
+
+hi everyone i'll show you my some thouts here
